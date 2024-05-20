@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yun_atural, "조유나"
-- 👀 I’m interested in ... 
+- 👀 I’m interested in ... SAP, ERP
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... 01095723360  
 
